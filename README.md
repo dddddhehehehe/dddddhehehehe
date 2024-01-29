@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dddddhehehehe
-- 👀 I’m interested in sleep
+- 💤 I’m interested in sleep
 - 💕 I’m currently learning git
 - 📫 How to reach me :on internet
 - ⚡ Fun fact: havn't done any homework:<
